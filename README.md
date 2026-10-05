@@ -1,1 +1,0 @@
-# assignment_3_Sapan_Miras_SDP
